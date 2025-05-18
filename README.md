@@ -4,13 +4,13 @@
 📸Cristiano Ronaldo celebrates with Marcelo.
 
 In one of Cristiano Ronaldo’s most legendary La Liga performances, this project breaks down his incredible display against Granada at the Santiago Bernabéu during the 2014/15 season. The analysis covers every facet of his game as he netted a penta-trick in a single match and led Real Madrid to a 9-1 triumph. Some of the events analyzed include:
-⚽️ Goals
-✅ Successful Passes
-❌ Unsuccessful Passes
-🥅 Shots on Target
-🚀 Shots off Target
-🔥 Dribbles
-🏹 Crosses
+• ⚽️ Goals
+• ✅ Successful Passes
+• ❌ Unsuccessful Passes
+• 🥅 Shots on Target
+• 🚀 Shots off Target
+• 🔥 Dribbles
+• 🏹 Crosses
 
 Goal GIFs:
 
