@@ -37,6 +37,7 @@ Goal GIFs:
 A tribute to one of the greatest individual performances in La Liga history. Enjoy exploring Ronaldo’s magic!🚀
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/84ee264e8b586d11f81a417c72e633a790f832be/tumblr_nmd7hgibj51spb0qgo6_500.gif)
+
 📸Ronaldo does his trademark "Siuuu" celebration after completing his hattrick before halftime.
 
 Video used to tag Ronaldo's movement against Granada⬇️
