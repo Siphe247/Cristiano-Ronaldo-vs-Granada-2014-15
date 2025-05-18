@@ -13,19 +13,25 @@ In one of Cristiano Ronaldo’s most legendary La Liga performances, this projec
 🏹 Crosses
 
 Goal GIFs:
+
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%201st%20goal%20vs%20Granada.gif)
+
 📸Cristiano Ronaldo's first goal.
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%202nd%20goal%20vs%20Granada.gif)
+
 📸Cristiano Ronaldo's second goal.
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%203rd%20goal%20vs%20Granada.gif)
+
 📸Cristiano Ronaldo's third goal.
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%204th%20goal%20vs%20Granada.gif)
+
 📸Cristiano Ronaldo's fourth goal.
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%205th%20goal%20vs%20Granda.gif)
+
 📸Cristiano Ronaldo's fifth goal.
 
 A tribute to one of the greatest individual performances in La Liga history. Enjoy exploring Ronaldo’s magic!🚀
