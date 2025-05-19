@@ -12,6 +12,10 @@ In one of Cristiano Ronaldo’s most legendary La Liga performances, this projec
 - 🔥 Dribbles
 - 🏹 Crosses
 
+![image_alt](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/34473a7160aab8d57f4ecf7e2aeab49db9370a2b/Cristiano%20Ronaldo%20Heat%20Map%20vs%20Granada%202014%3A15.png)
+📸Cristiano Ronaldo heat map vs Granada in La Liga matchday 29 2014/15
+
+
 Goal GIFs:
 
 ![till](https://github.com/Siphe247/Cristiano-Ronaldo-vs-Granada-2014-15/blob/173befea7c12207932d40a785234ac0ca7357f84/Ronaldo%201st%20goal%20vs%20Granada.gif)
